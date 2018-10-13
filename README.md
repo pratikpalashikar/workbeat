@@ -7,4 +7,4 @@ List of good beats while working
 - ['Afterglow' Ambient Mix](https://www.youtube.com/watch?v=MgApT3VHtZY)
 - [Pain Theme remix](https://www.youtube.com/watch?v=ra9UgspPmXE)
 - [MORENA - BASE DE RAP / HIP HOP INSTRUMENTAL (PROD BY LA LOQUERA 2018)](https://www.youtube.com/watch?v=0bFJjL-Johw)
-- [Burial - Untrue] (https://www.youtube.com/watch?v=Mv3m4gVq628&list=PLjIuADMrDKIZM28YHfBPvwx2HgLACFfiW)
+- [Burial - Untrue](https://www.youtube.com/watch?v=Mv3m4gVq628&list=PLjIuADMrDKIZM28YHfBPvwx2HgLACFfiW)
