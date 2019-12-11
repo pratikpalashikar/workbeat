@@ -13,3 +13,5 @@ List of good beats while working
 - [Bibio - The Apple And The Tooth](https://www.youtube.com/playlist?list=PLcHfpR0LQpP5VEDCmjsen9h6hKcI8BMPx)
 - [Feint - Clockwork Hearts](https://www.youtube.com/watch?v=32pHvXsxa9o)
 - [Ain't Scared of You- Portia Monique(Reel People Instrumental Mix)](https://www.youtube.com/watch?v=W-yGJD6oVzo)
+- [ＡＺＵＬ　ＤＡ　ＣＯＲ　ＤＯ　ＭＡＲ (Lofi remix)](https://www.youtube.com/watch?v=3_52H8bk9WQ)
+- [saib. - When It Rains (Chove Chuva)](https://www.youtube.com/watch?v=ohgrIxhqPu0)
